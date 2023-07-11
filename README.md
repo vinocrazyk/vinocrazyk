@@ -4,7 +4,7 @@ I'm like a creative superhero, armed with Figma, VS Code, and an endless supply 
 
 #### Short Bio
 
-- 👨‍💻 Day-time Web Developer
+- 👨‍💻 Day-time Developer
 - 🤖 Night-time Gamer 
 - 😎 Always Straightforward
 - 🎬 Weekend Moviefreak
