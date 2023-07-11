@@ -1,6 +1,6 @@
 ## Hi there, I'm Vinoth Kanna 👋
 
-I help creators bring their thoughts to life. Controlled by Figma, VS Code and espresso. Outside of work, I'm a movie freak. I'd love to get coffee and get to know you, so don’t hesitate to contact me.
+I'm like a creative superhero, armed with Figma, VS Code, and an endless supply of espresso, ready to bring your wildest ideas to life! When I'm not saving the day, I turn into a movie maniac, devouring films like there's no tomorrow. If you're up for some caffeinated fun and an opportunity to unravel the mysteries of the universe (or just have a chat), don't be shy! Drop me a line and let's embark on a whimsical adventure over a cup of joe!.
 
 #### Short Bio
 
